@@ -1,3 +1,3 @@
 #hacktobrefrest-free-tshirt
 
-plase contribut !! im bad at speling Need YOURE help to fix this redme.
+plase contribute !! im bad at speling Need YOURE help to fix this redme.
